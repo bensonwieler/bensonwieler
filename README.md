@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @bensonwieler
+- 👀 I’m interested in legal tech and the industry's startup space.
+- 🌱 I’m currently learning coding literacy so as to provide correct exegetical understandings.
+- 📫 How to reach me: 
+ - E-mail: me@bensonwieler.com
+ - LinkedIn: https://www.linkedin.com/in/bensonwieler/.
